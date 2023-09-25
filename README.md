@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I am Abhiram JN and I have just begun my journey in BTech (EEE) at GEC Barton Hill 🥳💡.
 
 <!--
 
